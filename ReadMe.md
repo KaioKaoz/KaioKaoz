@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou estudante de engenheira de software<br>Atualmente estou estudando na universidade ceub<br>Tenho 18 anos<br>
+Sou estudante de engenheira de software<br>Atualmente estou estudando na universidade ceub<br>Tenho 18 anos<br>https://kaiokaoz.github.io<br>
 
 
 ## 🌐 Socials:
